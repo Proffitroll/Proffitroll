@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Proffitroll
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me - dont
+- 😄 Pronouns: he
+- ⚡ Fun fact: no
